@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **itzmitali03@gmail.com**
 
-- 📄 Know about my experiences [bit.ly/Mitaliresume](bit.ly/Mitaliresume)
+- 📄 Know about my experiences [Resume](https://bit.ly/Mitaliresume)
 
 - ⚡ Fun fact **I love to interact**
 
